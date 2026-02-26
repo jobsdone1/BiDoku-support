@@ -10,3 +10,5 @@ If you need help, you can contact us at:
 - How to get hints? Tap the lightbulb icon.  
 
 We aim to respond within 24 hours.
+
+For faster responses, follow us on Instagram: @bidoku.app
